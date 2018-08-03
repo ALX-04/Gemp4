@@ -1,0 +1,2 @@
+# Gemp4
+CEK GEMPA TERKINI 
